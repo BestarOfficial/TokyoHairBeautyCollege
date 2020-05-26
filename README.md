@@ -1,0 +1,2 @@
+# TokyoHairBeautyCollege
+東京ヘアビューティ専門学校の学内ガイダンス特設サイト
